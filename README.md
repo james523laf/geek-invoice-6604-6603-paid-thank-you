@@ -1,3 +1,3 @@
 25-Sep-2026
 
-<!-- Round 1 · 2026-09-25 17:49:57 · K4weFHPJ · adl8661@comcast.net, pcacosta@yahoo.com -->
+<!-- Round 2 · 2026-09-25 17:50:02 · I5J5l6ZN · r.dejong@comcast.net, davidbevills@yahoo.com -->
